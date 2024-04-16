@@ -1,2 +1,0 @@
-# Jornada-AI
- 
